@@ -1,3 +1,3 @@
 Hi!
 
-Hi Jameel! How am I? 
+Hi Jameel! How are you?
